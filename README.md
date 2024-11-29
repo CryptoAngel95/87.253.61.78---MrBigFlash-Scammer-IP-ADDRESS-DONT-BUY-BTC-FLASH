@@ -69,4 +69,7 @@ https://github.com/user-attachments/assets/89badbda-c197-42d5-94c8-2f5b4567605c
 
 ### **🚀 Embrace the Future with BTC Flash Software Today!**
 
-Telegram : https://t.me/mrbigflash11
+Contact : https://t.me/mrbigflashh
+
+Our Channel With Announcements https://t.me/mrbigflash1
+
